@@ -1,1 +1,1 @@
-# # Analisis Segmentasi dan Channel Pelanggan: Kunci Efisiensi Pemasaran Carrefour di 2025
+# Analisis Segmentasi dan Channel Pelanggan Tahun 2024: Kunci Efisiensi Pemasaran Carrefour
