@@ -1,1 +1,1 @@
-# DianMargarethaNainggolan_Capstone_2
+# # Analisis Segmentasi dan Channel Pelanggan: Kunci Efisiensi Pemasaran Carrefour di 2025
